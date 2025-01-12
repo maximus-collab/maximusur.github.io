@@ -1,3 +1,3 @@
 _WASSUP GUYS_
 
-**Welocome to my Website**
+**Welcome to my Website**
